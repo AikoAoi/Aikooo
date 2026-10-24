@@ -1,2 +1,1 @@
-# Aikooo
-Aiko here ~
+Noey the devil.
